@@ -4,20 +4,25 @@
 
 Just a girl who discovers this world and having fun, as with anything new she explores!
 
-My exceptional talents:
+### My exceptional talents:
+
 - Loosing my keys juste after finding them
 - Always up for new experiences
 - Questioning myself whether penguins have knees when it's time to sleep. 
 
 
-Things I could die for :
+### Things I could die for :
+
 -  A good agricultural rhum.
 -  Time to do things that make me feel alive.
 -  Food, more food!
 
-My objectives during the training : No matter what happens, dont forget that "~What the hell is this?! I'm never going to make it!~ "Everything is gonna be just fine, just breathe and don't give up."
+### My objectives during the training : 
 
-The monsters under my bed :
+No matter what happens, dont forget that "~What the hell is this?! I'm never going to make it!~ "Everything is gonna be just fine, just breathe and don't give up."
+
+### The monsters under my bed :
+
 * Social anxiety
 * Walking throught a puddle in socks 
 
@@ -26,7 +31,7 @@ The monsters under my bed :
 Can't wait to look back 7 months from now and say to myself :
 I did it! What an incredible experience! I'm going to miss it!.
 
-The Three things you value the most to work as a team
+### The Three things you value the most to work as a team :
 1. Autonomy
 2. Collaboration
 3. Still believe in kindness
